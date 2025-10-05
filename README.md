@@ -1,6 +1,8 @@
 # contribution-1
 just kek
 
+man seriously
+
 nothing serious
  
 just pushing this cause i can 
